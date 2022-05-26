@@ -1,10 +1,30 @@
-- 👋 Hi, I’m @Awal17
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+🔰 NAMA    : AWAL NURDIANTO
+🔰 TINGGAL : KARANGNANGKA BINANGUN
+🔰 UMUR    : 14 - 15 THN
+🔰 NO WA.  : 082327172044
+🔰 ORDER SC ? HUBUNGI NO WA SAJA
 
-<!---
-Awal17/Awal17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+#TIDAK MENERIMA SPAMM
+#TIDAK MENERIMA SEWA BAYARAN
+#SC MINIMAL 5HARI PEMAKAIAN
+#SC PREMIUM? LAGI DI PROSES 
+
+
+
+
+🔰AKUN SSH PREMIUM
+1. 10K 1 BULAN MEDIUM SPEED
+2. 15K 1 BULAN HIGHT SPEED
+3. 20K 1 BULAN FULL SPEED
+#BONUS CONFIG SEMUA APK INJEK ALL KOUTA
+#PEMBAYARAN MELALUI DANA/PULSA
+#SSH TRIAL? 1 JAM PERCOBAAN
+#GAK KONEK? USAHAKAN APN NYA DI GANTI 
+  SEPERTI DIBAWAH INI
+=NAMA.  : SSHTRIAL
+=APN.   : LEMOTRIALSSH
+=SERVER :192.0.0.1
+
+
+THANK YOU 🎀❤️
