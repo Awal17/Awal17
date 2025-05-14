@@ -1,7 +1,6 @@
-🔰 NAMA    : AWAL NURDIANTO
-🔰 ALAMAT  : JATENG BANJARNEGARA
-🔰 EMAIL   : awaleditor17@gmail.com
-🔰 NO WA.  : 082327172044
+🔰 NAMA    : -
+🔰 EMAIL   : -
+🔰 NO WA.  : Xxx
 
 #NO DDOS
 #NO SPAM
